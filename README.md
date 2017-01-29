@@ -1,9 +1,15 @@
 ## Issues Coming Up
+
 ### Education
+
 ### HealthCare
+
 ### Immigration
+
 ### Science
+
 ### Women's Issues
+
 ### Civil Rights
 
 ## Other Resource Links
