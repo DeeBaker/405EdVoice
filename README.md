@@ -1,8 +1,14 @@
 ## Issues Coming Up
 
 ### Education
- Collins [email] (https://www.collins.senate.gov/contact) contact
+#### Oppose DeVos
+ Collins [email](https://www.collins.senate.gov/contact) contact
+ Alexander [email]([email] (https://www.collins.senate.gov/contact) contact
  
+#### State Budget for Education
+What to say: __I'm a concerned educator/parent/citizen. Public Education should be the leveling field for all students regardless of race, immigration status, socioeconomic status, religion, and ability but it is currently under attack federally and locally. Please support Governor Inslee's K-12 plan and oppose the Senate's punitive and reckless proposal which would put our most vulnerable students at an even greater disadvantage.. Education is a Civil Right and it is our duty to advocate for all students.__
+
+More information: [Washington Education Association](https://www.washingtonea.org/ourvoice) 
 
 ### HealthCare
 
