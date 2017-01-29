@@ -1,6 +1,8 @@
 ## Issues Coming Up
 
 ### Education
+ Collins [email] (https://www.collins.senate.gov/contact) contact
+ 
 
 ### HealthCare
 
@@ -11,6 +13,8 @@
 ### Women's Issues
 
 ### Civil Rights
+
+### Poverty
 
 ## Other Resource Links
 
