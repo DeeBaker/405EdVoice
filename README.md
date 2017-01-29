@@ -6,7 +6,7 @@
 
  Collins [email](https://www.collins.senate.gov/contact) contact
  
- Alexander [email]([email] (https://www.collins.senate.gov/contact) contact
+ Alexander [email](https://www.collins.senate.gov/contact) contact
  
 #### State Budget for Education
 
