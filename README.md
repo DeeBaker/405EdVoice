@@ -6,7 +6,19 @@ They are the members of the Senate Committee on Health, Education, Labor and Pen
 Committee Membership
 REPUBLICANS BY RANK
 
-[Lamar Alexander (TN) email](https://www.collins.senate.gov/contact) and phone (202) 224-4944 [Michael B. Enzi (WY)email] and [phone] [Richard Burr (NC)] and [phone] [Johnny Isakson (GA)] and [phone] [Rand Paul (KY)] and [phone] [Susan Collins (ME)] (https://www.collins.senate.gov/contact) and [phone] [Bill Cassidy, M.D. (LA)] and [phone] [Todd Young (IN)] and [phone] [Orrin  Hatch (UT)] and [phone] [Pat Roberts (KS)] and [phone] [Lisa Murkowski (AK)] and [phone] [Tim Scott (SC)] and [phone]
+[Lamar Alexander (TN) email](https://www.collins.senate.gov/contact) and phone (202) 224-4944 
+[Michael B. Enzi (WY)email](http://www.enzi.senate.gov/public/index.cfm/contact?p=e-mail-senator-enzi) and 379A Russell Senate Office Building Washington DC 20510
+(202) 224-3424 
+[Richard Burr (NC)](https://www.burr.senate.gov/contact/email) 217 Russell Senate Office Building Washington DC 20510
+(202) 224-3154
+800-685-8916
+[Johnny Isakson (GA)](https://www.isakson.senate.gov/public/index.cfm/email-me) 131 Russell Senate Office Building Washington DC 20510
+(202) 224-3643
+[Rand Paul (KY)](https://www.paul.senate.gov/connect/email-rand) 167 Russell Senate Office Building Washington DC 20510
+(202) 224-4343
+[Susan Collins (ME)](https://www.collins.senate.gov/contact) 413 Dirksen Senate Office Building Washington DC 20510
+(202) 224-2523
+[Bill Cassidy, M.D. (LA)] and [phone] [Todd Young (IN)] and [phone] [Orrin  Hatch (UT)] and [phone] [Pat Roberts (KS)] and [phone] [Lisa Murkowski (AK)] and [phone] [Tim Scott (SC)] and [phone]
 
 DEMOCRATS BY RANK
 
