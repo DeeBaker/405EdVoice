@@ -6,7 +6,7 @@ They are the members of the Senate Committee on Health, Education, Labor and Pen
 Committee Membership
 REPUBLICANS BY RANK
 
-[Lamar Alexander (TN) email](https://www.collins.senate.gov/contact) and phone (202) 224-4944 
+[Lamar Alexander (TN) email](https://www.alexander.senate.gov/public/index.cfm/email) and phone (202) 224-4944 
 
 [Michael B. Enzi (WY)email](http://www.enzi.senate.gov/public/index.cfm/contact?p=e-mail-senator-enzi) and 379A Russell Senate Office Building Washington DC 20510
 (202) 224-3424 
