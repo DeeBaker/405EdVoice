@@ -11,69 +11,70 @@ REPUBLICANS BY RANK
 [Michael B. Enzi (WY)email](http://www.enzi.senate.gov/public/index.cfm/contact?p=e-mail-senator-enzi) and 379A Russell Senate Office Building Washington DC 20510
 (202) 224-3424 
 
-[Richard Burr (NC)](https://www.burr.senate.gov/contact/email) 217 Russell Senate Office Building Washington DC 20510
+[Richard Burr (NC)email](https://www.burr.senate.gov/contact/email) 217 Russell Senate Office Building Washington DC 20510
 (202) 224-3154
 800-685-8916
 
-[Johnny Isakson (GA)](https://www.isakson.senate.gov/public/index.cfm/email-me) 131 Russell Senate Office Building Washington DC 20510
+[Johnny Isakson (GA)email](https://www.isakson.senate.gov/public/index.cfm/email-me) 131 Russell Senate Office Building Washington DC 20510
 (202) 224-3643
 
-[Rand Paul (KY)](https://www.paul.senate.gov/connect/email-rand) 167 Russell Senate Office Building Washington DC 20510
+[Rand Paul (KY)email](https://www.paul.senate.gov/connect/email-rand) 167 Russell Senate Office Building Washington DC 20510
 (202) 224-4343
 
-[Susan Collins (ME)](https://www.collins.senate.gov/contact) 413 Dirksen Senate Office Building Washington DC 20510
+[Susan Collins (ME)email](https://www.collins.senate.gov/contact) 413 Dirksen Senate Office Building Washington DC 20510
 (202) 224-2523
 
-[Bill Cassidy, M.D. (LA)](https://www.cassidy.senate.gov/contact)703 Hart Senate Office Building Washington DC 20510
+[Bill Cassidy, M.D. (LA)email](https://www.cassidy.senate.gov/contact)703 Hart Senate Office Building Washington DC 20510
 (202) 224-5824 
 
-[Todd Young (IN)](https://www.young.senate.gov/content/contact-senator) B33 Russell Senate Office Building Washington DC 20510
+[Todd Young (IN)email](https://www.young.senate.gov/content/contact-senator) B33 Russell Senate Office Building Washington DC 20510
 (202) 224-5623
 
-[Orrin  Hatch (UT)](http://www.hatch.senate.gov/public/index.cfm/contact?p=Email-Orrin) 104 Hart Senate Office Building Washington DC 20510
+[Orrin  Hatch (UT)email](http://www.hatch.senate.gov/public/index.cfm/contact?p=Email-Orrin) 104 Hart Senate Office Building Washington DC 20510
 (202) 224-5251
 
-[Pat Roberts (KS)](https://www.roberts.senate.gov/public/?p=EmailPat) 109 Hart Senate Office Building Washington DC 20510
+[Pat Roberts (KS)email](https://www.roberts.senate.gov/public/?p=EmailPat) 109 Hart Senate Office Building Washington DC 20510
 (202) 224-4774
 
-[Lisa Murkowski (AK)](https://www.murkowski.senate.gov/contact) 522 Hart Senate Office Building Washington DC 20510
+[Lisa Murkowski (AK)email](https://www.murkowski.senate.gov/contact) 522 Hart Senate Office Building Washington DC 20510
 (202) 224-6665
 
-[Tim Scott (SC)](https://www.scott.senate.gov/contact/email-me) 520 Hart Senate Office Building Washington DC 20510
+[Tim Scott (SC)email](https://www.scott.senate.gov/contact/email-me) 520 Hart Senate Office Building Washington DC 20510
 (202) 224-6121
 
 DEMOCRATS BY RANK
 
-[Patty Murray (WA)](https://www.murray.senate.gov/public/index.cfm/contactme) 154 Russell Senate Office Building Washington DC 20510
+[Patty Murray (WA)email](https://www.murray.senate.gov/public/index.cfm/contactme) 154 Russell Senate Office Building Washington DC 20510
 (202) 224-2621
 
-[Bernie Sanders (VT)](https://www.sanders.senate.gov/contact/comment) 332 Dirksen Senate Office Building Washington DC 20510
+[Bernie Sanders (VT)email](https://www.sanders.senate.gov/contact/comment) 332 Dirksen Senate Office Building Washington DC 20510
 (202) 224-5141
 
-[Robert P. Casey, Jr (PA)](https://www.casey.senate.gov/contact/) 393 Russell Senate Office Building Washington DC 20510
+[Robert P. Casey, Jr (PA)email](https://www.casey.senate.gov/contact/) 393 Russell Senate Office Building Washington DC 20510
 (202) 224-6324
 
-[Al Franken (MN)](https://www.franken.senate.gov/?p=email_al) 309 Hart Senate Office Building Washington DC 20510
+[Al Franken (MN)email](https://www.franken.senate.gov/?p=email_al) 309 Hart Senate Office Building Washington DC 20510
 (202) 224-5641
 
-[Michael F. Bennet (CO)](https://www.bennet.senate.gov/?p=contact) 261 Russell Senate Office Building Washington DC 20510
+[Michael F. Bennet (CO)email](https://www.bennet.senate.gov/?p=contact) 261 Russell Senate Office Building Washington DC 20510
 (202) 224-5852
 
-[Sheldon Whitehouse (RI)](https://www.whitehouse.senate.gov/contact/email-sheldon) 530 Hart Senate Office Building Washington DC 20510
+[Sheldon Whitehouse (RI)email](https://www.whitehouse.senate.gov/contact/email-sheldon) 530 Hart Senate Office Building Washington DC 20510
 (202) 224-2921
 
-[Tammy Baldwin (WI)](https://www.baldwin.senate.gov/feedback) 717 Hart Washington DC 20510
+[Tammy Baldwin (WI)email](https://www.baldwin.senate.gov/feedback) 717 Hart Washington DC 20510
 (202) 224-5653
 
-[Christopher S. Murphy (CT)](https://www.murphy.senate.gov/contact) 136 Hart Senate Office Building Washington DC 20510
+[Christopher S. Murphy (CT)email](https://www.murphy.senate.gov/contact) 136 Hart Senate Office Building Washington DC 20510
 (202) 224-4041
 
-[Elizabeth Warren (MA)](https://www.warren.senate.gov/?p=email_senator) 317 Hart Senate Office Building Washington DC 20510
+[Elizabeth Warren (MA)email](https://www.warren.senate.gov/?p=email_senator) 317 Hart Senate Office Building Washington DC 20510
 (202) 224-4543
 
-[Tim Kaine (VA)](https://www.kaine.senate.gov/contact)231 Russell Senate Office Building Washington DC 20510
+[Tim Kaine (VA)email](https://www.kaine.senate.gov/contact)231 Russell Senate Office Building Washington DC 20510
 (202) 224-4024
-[Maggie Wood Hassan (NH)](https://www.hassan.senate.gov/content/contact-senator) 
+
+[Maggie Wood Hassan (NH)email](https://www.hassan.senate.gov/content/contact-senator) 
 B85 Russell Senate Office Building Washington DC 20510
 (202) 224-3324
 
