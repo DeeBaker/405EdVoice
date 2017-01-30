@@ -7,11 +7,14 @@ Committee Membership
 REPUBLICANS BY RANK
 
 [Lamar Alexander (TN) email](https://www.collins.senate.gov/contact) and phone (202) 224-4944 
+
 [Michael B. Enzi (WY)email](http://www.enzi.senate.gov/public/index.cfm/contact?p=e-mail-senator-enzi) and 379A Russell Senate Office Building Washington DC 20510
 (202) 224-3424 
+
 [Richard Burr (NC)](https://www.burr.senate.gov/contact/email) 217 Russell Senate Office Building Washington DC 20510
 (202) 224-3154
 800-685-8916
+
 [Johnny Isakson (GA)](https://www.isakson.senate.gov/public/index.cfm/email-me) 131 Russell Senate Office Building Washington DC 20510
 (202) 224-3643
 [Rand Paul (KY)](https://www.paul.senate.gov/connect/email-rand) 167 Russell Senate Office Building Washington DC 20510
