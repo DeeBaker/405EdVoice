@@ -1,6 +1,6 @@
 # Oppose DeVos
-The committee vote, originally scheduled to take place Tuesday has been rescheduled for Jan. 31 at 10 a.m.  If she passes the commitee vote then it will go to the entire senate for vote.
-SO its important to voice your opinion to all the commitee members now 
+The committee vote, originally scheduled to take place Tuesday has been rescheduled for Jan. 31 at 10 a.m.  If DeVos passes the committee vote then it will go to the entire senate for vote.
+So it is important to voice your opinion to all the commitee members now. 
 They are the members of the Senate Committee on Health, Education, Labor and Pensions:
 
 Committee Membership
