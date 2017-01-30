@@ -17,42 +17,72 @@ REPUBLICANS BY RANK
 
 [Johnny Isakson (GA)](https://www.isakson.senate.gov/public/index.cfm/email-me) 131 Russell Senate Office Building Washington DC 20510
 (202) 224-3643
+
 [Rand Paul (KY)](https://www.paul.senate.gov/connect/email-rand) 167 Russell Senate Office Building Washington DC 20510
 (202) 224-4343
+
 [Susan Collins (ME)](https://www.collins.senate.gov/contact) 413 Dirksen Senate Office Building Washington DC 20510
 (202) 224-2523
-[Bill Cassidy, M.D. (LA)] and [phone] [Todd Young (IN)] and [phone] [Orrin  Hatch (UT)] and [phone] [Pat Roberts (KS)] and [phone] [Lisa Murkowski (AK)] and [phone] [Tim Scott (SC)] and [phone]
+
+[Bill Cassidy, M.D. (LA)](https://www.cassidy.senate.gov/contact)703 Hart Senate Office Building Washington DC 20510
+(202) 224-5824 
+
+[Todd Young (IN)](https://www.young.senate.gov/content/contact-senator) B33 Russell Senate Office Building Washington DC 20510
+(202) 224-5623
+
+[Orrin  Hatch (UT)](http://www.hatch.senate.gov/public/index.cfm/contact?p=Email-Orrin) 104 Hart Senate Office Building Washington DC 20510
+(202) 224-5251
+
+[Pat Roberts (KS)](https://www.roberts.senate.gov/public/?p=EmailPat) 109 Hart Senate Office Building Washington DC 20510
+(202) 224-4774
+
+[Lisa Murkowski (AK)](https://www.murkowski.senate.gov/contact) 522 Hart Senate Office Building Washington DC 20510
+(202) 224-6665
+
+[Tim Scott (SC)](https://www.scott.senate.gov/contact/email-me) 520 Hart Senate Office Building Washington DC 20510
+(202) 224-6121
 
 DEMOCRATS BY RANK
 
-[Patty Murray (WA)] and [phone] [Bernie Sanders (VT)] and [phone] [Robert P. Casey, Jr (PA)]] and [phone] [Al Franken (MN)] and [phone] [Michael F. Bennet (CO)] and [phone] [Sheldon Whitehouse (RI)] and [phone] [Tammy Baldwin (WI)] and [phone] [Christopher S. Murphy (CT)] and [phone] [Elizabeth Warren (MA)] and [phone] [Tim Kaine (VA)] and [phone] [Maggie  Hassan (NH)] and [phone]
+[Patty Murray (WA)](https://www.murray.senate.gov/public/index.cfm/contactme) 154 Russell Senate Office Building Washington DC 20510
+(202) 224-2621
 
+[Bernie Sanders (VT)](https://www.sanders.senate.gov/contact/comment) 332 Dirksen Senate Office Building Washington DC 20510
+(202) 224-5141
 
- Collins [email](https://www.collins.senate.gov/contact) contact
- 
- Alexander [email](https://www.collins.senate.gov/contact) contact
- 
- ## Issues Coming Up
+[Robert P. Casey, Jr (PA)](https://www.casey.senate.gov/contact/) 393 Russell Senate Office Building Washington DC 20510
+(202) 224-6324
 
-### Education
+[Al Franken (MN)](https://www.franken.senate.gov/?p=email_al) 309 Hart Senate Office Building Washington DC 20510
+(202) 224-5641
 
+[Michael F. Bennet (CO)](https://www.bennet.senate.gov/?p=contact) 261 Russell Senate Office Building Washington DC 20510
+(202) 224-5852
 
- 
- Toomey [email](https://www.toomey.senate.gov/?p=contact) contact
- 
-Alaska Senator 907-456-0233
+[Sheldon Whitehouse (RI)](https://www.whitehouse.senate.gov/contact/email-sheldon) 530 Hart Senate Office Building Washington DC 20510
+(202) 224-2921
 
-McConnell, Mitch Kentucky
-(202) 224-2541
-[Contact:](www.mcconnell.senate.gov/public/index.cfm?p=contact)
+[Tammy Baldwin (WI)](https://www.baldwin.senate.gov/feedback) 717 Hart Washington DC 20510
+(202) 224-5653
 
-Paul, Rand 
-(202) 224-4343
-[Contact:](www.paul.senate.gov/connect/email-rand)
+[Christopher S. Murphy (CT)](https://www.murphy.senate.gov/contact) 136 Hart Senate Office Building Washington DC 20510
+(202) 224-4041
 
+[Elizabeth Warren (MA)](https://www.warren.senate.gov/?p=email_senator) 317 Hart Senate Office Building Washington DC 20510
+(202) 224-4543
+
+[Tim Kaine (VA)](https://www.kaine.senate.gov/contact)231 Russell Senate Office Building Washington DC 20510
+(202) 224-4024
+[Maggie Wood Hassan (NH)](https://www.hassan.senate.gov/content/contact-senator) 
+B85 Russell Senate Office Building Washington DC 20510
+(202) 224-3324
 
 What to say?
 __I am writing to demand not to confirm DeVos as Secretary of Education. Her hostility towards public education should disqualify her from this position. In addition, she is unqualified because of her lack experience with public education and displays a lack of knowledge and preparation for this position. We need someone that supports ALL our students.__
+ 
+## Issues Coming Up
+
+### Education
  
 #### State Budget for Education
 
