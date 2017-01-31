@@ -1,4 +1,14 @@
-# Oppose DeVos
+# Oppose Pruitt for EPA director
+
+[Analysis of his record is at](http://www.epw.senate.gov/public/index.cfm/press-releases-democratic?ID=40B4C65C-C733-406C-A584-DF749BEE4B92)
+
+Links to Senators on the commitee that are voting tomorrow are [here](http://www.epw.senate.gov/public/index.cfm/members)
+
+
+
+
+
+## Oppose DeVos
 The committee vote, originally scheduled to take place Tuesday has been rescheduled for Jan. 31 at 10 a.m.  If DeVos passes the committee vote then it will go to the entire senate for vote.
 So it is important to voice your opinion to all the commitee members now. 
 They are the members of the Senate Committee on Health, Education, Labor and Pensions:
