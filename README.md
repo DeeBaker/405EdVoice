@@ -18,7 +18,7 @@
 
 ### [Click here to find your representative Congressional Contact](https://www.congress.gov/members)
 
-### *Not sure what to say or exactly how to say it? Here is a* [Call Script](https://docs.google.com/document/d/17mEyaKxzrqxzAdk2Kbnvf4QyXgRf8vMR_Ajh4yT-Dbw/edit?usp=sharing)  
+### *Not sure what to say or exactly how to say it? Here is a* [Call Script](https://docs.google.com/document/d/1EmVW-adRMyZ75nkA3xFnC8hWFRapSWrFx6iym4V7D1c/edit?usp=sharing)  
 
 
   <br><br>
