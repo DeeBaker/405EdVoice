@@ -1,12 +1,17 @@
 #  EPA, National Parks, & Wildlife Legislation
 
 ## House Joint Res 46
+### **Providing for congressional disapproval under chapter 8 of title 5, United States Code, of the final rule of the National Park Service relating to "General Provisions and Non-Federal Oil and Gas Rights".**
+
+### *Drilling in National Parks* 
+### [**HJR 46**](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)
+ 
 
 ## HR622
 
 ## HR861
 
-## House Joint Resolution 36 and Senate Joint Resolution 11"
+## House Joint Resolution 36 and Senate Joint Resolution 11
 
 ## House Joint Res 69
 
