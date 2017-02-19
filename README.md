@@ -1,10 +1,8 @@
-#  EPA, National Parks, & Wildlife LegislationX      
+#  EPA, National Parks, & Wildlife Legislation      
+  
+  
 
-
-## *1. Drilling in National Parks:* [House Joint Res 46 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)     
-
-
-
+## *1. Drilling in National Parks:* [House Joint Res 46 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)   
 
 ### *Providing for congressional disapproval under chapter 8 of title 5, United States Code, of the final rule of the National Park Service relating to "General Provisions and Non-Federal Oil and Gas Rights".*
 
@@ -25,7 +23,8 @@
 
 
 ## *2.Privatization of Public Lands:* [House Res 622 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-bill/622/text)  
-
+  
+  
 
 ### *To terminate the law enforcement functions of the Forest Service and the Bureau of Land Management and to provide block grants to States for the enforcement of Federal law on Federal land under the jurisdiction of these agencies, and for other purposes.*
 
