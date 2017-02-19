@@ -1,5 +1,5 @@
 #  EPA, National Parks, & Wildlife Legislation
-
+=====
 ## *Drilling in National Parks:* [House Joint Res 46 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)
 
 ### *Providing for congressional disapproval under chapter 8 of title 5, United States Code, of the final rule of the National Park Service relating to "General Provisions and Non-Federal Oil and Gas Rights".*
