@@ -1,10 +1,22 @@
 #  EPA, National Parks, & Wildlife Legislation
 
-## House Joint Res 46
-### **Providing for congressional disapproval under chapter 8 of title 5, United States Code, of the final rule of the National Park Service relating to "General Provisions and Non-Federal Oil and Gas Rights".**
+## [House Joint Res 46 text with all realted information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)
+### *Drilling in National Parks:* **Providing for congressional disapproval under chapter 8 of title 5, United States Code, of the final rule of the National Park Service relating to "General Provisions and Non-Federal Oil and Gas Rights".**
 
-### *Drilling in National Parks* 
-### [**HJR 46**](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)
+### This bill would undo protections that currently cover various gray wolf populations.
+
+### This bill requires the Department of the Interior to reissue: (1) the final rule published on December 28, 2011, that removed the gray wolf in the Western Great Lakes Distinct Population Segment from the List of Endangered and Threatened Wildlife and that removed the designation of critical habitat for that wolf in Minnesota and Michigan; and (2) the final rule published on September 10, 2012, that removed the gray wolf in Wyoming from the list and removed the Yellowstone Experimental Protection Area that was established to facilitate reintroduction of the wolf.
+
+### [Committee Contact Info](https://naturalresources.house.gov/contact/  United States House of Representatives) and 
+### 1324 Longworth House Office Building
+### Washington, D.C. 20515
+### Phone: (202) 225-2761
+### Fax: (202) 225-5929
+
+### [Congress Contacts](https://www.congress.gov/members)
+
+### [Call Script](https://docs.google.com/document/d/17mEyaKxzrqxzAdk2Kbnvf4QyXgRf8vMR_Ajh4yT-Dbw/edit?usp=sharing)
+ 
  
 
 ## HR622
