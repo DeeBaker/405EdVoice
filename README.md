@@ -54,7 +54,7 @@
 ### *To terminate the Environmental Protection Agency.*
 
 
-### ** This Bill would terminate the EPA.**
+### **This Bill would terminate the EPA.**
 
 ### **EPA protects our air and water, provides funding for communities to maintain safe drinking water and ensure waste water is treated appropriately. The EPA also ensures that business who do pollute are held accountable.**
 
@@ -80,7 +80,7 @@
 
 
 
-### **Removes the BLM rule relating to reduction of waste of natural gas from venting, flaring, and leaks during oil and natural gas production activities. [More Info](https://www.federalregister.gov/documents/2016/11/18/2016-27637/waste-prevention-production-subject-to-royalties-and-resource-conservation) **
+### **Removes the BLM rule relating to reduction of waste of natural gas from venting, flaring, and leaks during oil and natural gas production activities. [More Info](https://www.federalregister.gov/documents/2016/11/18/2016-27637/waste-prevention-production-subject-to-royalties-and-resource-conservation)**
 
 ### [ Committee Online Contact:]
 ### To contact by snail mail, phone, and fax contact your representative:
