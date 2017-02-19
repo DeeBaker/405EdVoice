@@ -43,7 +43,33 @@
  
    <br><br>
 
+
+
+
 ## HR861
+## *3.Environmental deregulation:* [House Res 861 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-bill/861/text)  
+  
+  
+
+### *To terminate the Environmental Protection Agency.
+*
+
+### ** This Bill would terminate the EPA.
+
+### **EPA protects our air and water, provides funding for communities to maintain safe drinking water and ensure waste water is treated appropriately. The EPA also ensures that business who do pollute are held accountable. 
+
+### **Nixon created the Clean Water and Clean Air acts, which the EPA is tasked with enforcing. Rolling back 40+ years of regulations will only damage our communities and our citizens. **
+
+### [Online Transportation Committee Membership:](http://clerk.house.gov/committee_info/index.aspx?comcode=PW00)
+### [Science](http://clerk.house.gov/committee_info/index.aspx?comcode=SY00) 
+### [Energy and Commerce](http://clerk.house.gov/committee_info/index.aspx?comcode=IF00)
+### To contact by snail mail, phone, and fax contact your representative: 
+
+### [Click here to find your representative Congressional Contact](https://www.congress.gov/members)
+
+### *Not sure what to say or exactly how to say it? Here is a* [Call Script](https://docs.google.com/document/d/1JrnvwpjXCNQ6Isc6UWwkIqpUyscodeubJOlqSV34keI/edit)
+ 
+   <br><br>
 
 ## House Joint Resolution 36 and Senate Joint Resolution 11
 
