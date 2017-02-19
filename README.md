@@ -52,7 +52,7 @@
   
 
 ### *To terminate the Environmental Protection Agency.
-*
+
 
 ### ** This Bill would terminate the EPA.
 
