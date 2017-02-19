@@ -1,9 +1,9 @@
 #  EPA, National Parks, & Wildlife Legislation      
-  
+  <br><br>
   
 
 ## *1. Drilling in National Parks:* [House Joint Res 46 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)   
-
+  <br>
 ### *Providing for congressional disapproval under chapter 8 of title 5, United States Code, of the final rule of the National Park Service relating to "General Provisions and Non-Federal Oil and Gas Rights".*
 
 ### **This bill would undo protections that currently cover various gray wolf populations.**
@@ -21,7 +21,7 @@
 ### *Not sure what to say or exactly how to say it? Here is a* [Call Script](https://docs.google.com/document/d/17mEyaKxzrqxzAdk2Kbnvf4QyXgRf8vMR_Ajh4yT-Dbw/edit?usp=sharing)  
 
 
-
+  <br><br>
 ## *2.Privatization of Public Lands:* [House Res 622 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-bill/622/text)  
   
   
@@ -41,6 +41,7 @@
 
 ### *Not sure what to say or exactly how to say it? Here is a* [Call Script](https://docs.google.com/document/d/1YOGifkDdHtW3zpuUZOODzS7IaKSdgj4qln-QETjO1z8/edit)
  
+   <br><br>
 
 ## HR861
 
