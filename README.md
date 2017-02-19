@@ -8,11 +8,11 @@
 ### **This bill requires the Department of the Interior to reissue: (1) the final rule published on December 28, 2011, that removed the gray wolf in the Western Great Lakes Distinct Population Segment from the List of Endangered and Threatened Wildlife and that removed the designation of critical habitat for that wolf in Minnesota and Michigan; and (2) the final rule published on September 10, 2012, that removed the gray wolf in Wyoming from the list and removed the Yellowstone Experimental Protection Area that was established to facilitate reintroduction of the wolf.**
 
 ### [Online Committee Contact Info](https://naturalresources.house.gov/contact/  United States House of Representatives) 
-### snail mail, phone, and fax: 
-### ..*1324 Longworth House Office Building
-### ..*Washington, D.C. 20515
-### ..*Phone: (202) 225-2761
-### ..*Fax: (202) 225-5929
+### To contact by snail mail, phone, and fax: 
+..*1324 Longworth House Office Building
+..*Washington, D.C. 20515
+..*Phone: (202) 225-2761
+..*Fax: (202) 225-5929
 
 ### [Click here to find your representative Congressional Contact](https://www.congress.gov/members)
 
