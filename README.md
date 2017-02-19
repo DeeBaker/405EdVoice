@@ -9,10 +9,10 @@
 
 ### [Online Committee Contact Info](https://naturalresources.house.gov/contact/  United States House of Representatives) 
 ### To contact by snail mail, phone, and fax: 
-..*1324 Longworth House Office Building
-..*Washington, D.C. 20515
-..*Phone: (202) 225-2761
-..*Fax: (202) 225-5929
+### *1324 Longworth House Office Building
+### *Washington, D.C. 20515
+### *Phone: (202) 225-2761
+### *Fax: (202) 225-5929
 
 ### [Click here to find your representative Congressional Contact](https://www.congress.gov/members)
 
