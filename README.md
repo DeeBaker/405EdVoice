@@ -9,10 +9,10 @@
 
 ### [Online Committee Contact Info](https://naturalresources.house.gov/contact/  United States House of Representatives) 
 ### To contact by snail mail, phone, and fax: 
-### *1324 Longworth House Office Building
-### *Washington, D.C. 20515
-### *Phone: (202) 225-2761
-### *Fax: (202) 225-5929
+### 1324 Longworth House Office Building
+### Washington, D.C. 20515
+### Phone: (202) 225-2761
+### Fax: (202) 225-5929
 
 ### [Click here to find your representative Congressional Contact](https://www.congress.gov/members)
 
@@ -20,7 +20,24 @@
  
  
 
-## HR622
+
+## *Privatization of Public Lands:* [House Res 622 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-bill/622/text)
+
+### *To terminate the law enforcement functions of the Forest Service and the Bureau of Land Management and to provide block grants to States for the enforcement of Federal law on Federal land under the jurisdiction of these agencies, and for other purposes.*
+
+### **Removal of Federal Law Enforcement on Federal lands and provide states block grants for law enforcement. This is important because it undermines the ability of the federal lands to be maintianed in a cohesive and national manner. It woul d likely increase illegal activies as local LEO are already strapped in many rural regions. **
+
+### [Online Committee Contact Info](https://naturalresources.house.gov/contact/  United States House of Representatives) 
+### To contact by snail mail, phone, and fax: 
+### 1324 Longworth House Office Building
+### Washington, D.C. 20515
+### Phone: (202) 225-2761
+### Fax: (202) 225-5929
+
+### [Click here to find your representative Congressional Contact](https://www.congress.gov/members)
+
+### *Not sure what to say or exactly how to say it? Here is a* [Call Script](https://docs.google.com/document/d/1YOGifkDdHtW3zpuUZOODzS7IaKSdgj4qln-QETjO1z8/edit)
+ 
 
 ## HR861
 
