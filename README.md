@@ -114,9 +114,9 @@
 ### [Click here to find your representative Congressional Contact](https://www.congress.gov/members)
 
 ### *Not sure what to say or exactly how to say it? Try this!* 
-### ** Dear Senator-**
+### **Dear Senator-**
 
-### **I am writing to you today to ask for your opposition to HJR 69, which would allow the shooting or trapping wolves while at their dens with cubs,and also using airplanes to scout for potential grizzly bear targets, trapping bears with wire snares and luring bears with food to get a point-blank kill.
+### **I am writing to you today to ask for your opposition to HJR 69, which would allow the shooting or trapping wolves while at their dens with cubs,and also using airplanes to scout for potential grizzly bear targets, trapping bears with wire snares and luring bears with food to get a point-blank kill.**
 ### **There are a number of issues with this- cruelty, lack of control on kill number s which could lead to a destabiliztion of the ecosystem. With the arctic already under pressure, it is imperative that we do everything we can to help our FEDERAL wildlife refuges.**
 ### **Thank you-**
 
