@@ -28,7 +28,7 @@
 
 ### *To terminate the law enforcement functions of the Forest Service and the Bureau of Land Management and to provide block grants to States for the enforcement of Federal law on Federal land under the jurisdiction of these agencies, and for other purposes.*
 
-### **Removal of Federal Law Enforcement on Federal lands and provide states block grants for law enforcement. This is important because it undermines the ability of the federal lands to be maintianed in a cohesive and national manner. It woul d likely increase illegal activies as local LEO are already strapped in many rural regions. **
+### **Removal of Federal Law Enforcement on Federal lands and provide states block grants for law enforcement. This is important because it undermines the ability of the federal lands to be maintianed in a cohesive and national manner. It woul d likely increase illegal activies as local LEO are already strapped in many rural regions.**
 
 ### [Online Committee Contact Info](https://naturalresources.house.gov/contact/  United States House of Representatives) 
 ### To contact by snail mail, phone, and fax: 
@@ -51,14 +51,14 @@
   
   
 
-### *To terminate the Environmental Protection Agency.
+### *To terminate the Environmental Protection Agency.*
 
 
-### ** This Bill would terminate the EPA.
+### ** This Bill would terminate the EPA.**
 
-### **EPA protects our air and water, provides funding for communities to maintain safe drinking water and ensure waste water is treated appropriately. The EPA also ensures that business who do pollute are held accountable. 
+### **EPA protects our air and water, provides funding for communities to maintain safe drinking water and ensure waste water is treated appropriately. The EPA also ensures that business who do pollute are held accountable.**
 
-### **Nixon created the Clean Water and Clean Air acts, which the EPA is tasked with enforcing. Rolling back 40+ years of regulations will only damage our communities and our citizens. **
+### **Nixon created the Clean Water and Clean Air acts, which the EPA is tasked with enforcing. Rolling back 40+ years of regulations will only damage our communities and our citizens.**
 
 ### [Online Transportation Committee Membership:](http://clerk.house.gov/committee_info/index.aspx?comcode=PW00)
 ### [Science](http://clerk.house.gov/committee_info/index.aspx?comcode=SY00) 
@@ -71,8 +71,8 @@
  
    <br><br>
 
-## House Joint Resolution 36 and Senate Joint Resolution 11
-## *3.Environmental deregulation:* [House Joint Res 36 Senate Joint Resolution 11 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/senate-joint-resolution/11/text)  
+
+## *4.Environmental deregulation:* [House Joint Res 36 Senate Joint Resolution 11 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/senate-joint-resolution/11/text)  
   
   
 
@@ -80,7 +80,7 @@
 
 
 
-### **Removes the BLM rule relating to reduction of waste of natural gas from venting, flaring, and leaks during oil and natural gas production activities. https://www.federalregister.gov/documents/2016/11/18/2016-27637/waste-prevention-production-subject-to-royalties-and-resource-conservation **
+### **Removes the BLM rule relating to reduction of waste of natural gas from venting, flaring, and leaks during oil and natural gas production activities. [More Info](https://www.federalregister.gov/documents/2016/11/18/2016-27637/waste-prevention-production-subject-to-royalties-and-resource-conservation) **
 
 ### [ Committee Online Contact:]
 ### To contact by snail mail, phone, and fax contact your representative:
@@ -96,7 +96,7 @@
    <br><br>
 
 
-## *1. Endangered species deregulation:* [House Joint Res 69 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/69/text)   
+## *5. Endangered species deregulation:* [House Joint Res 69 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/69/text)   
   <br>
 ### *Providing for congressional disapproval under chapter 8 of title 5, United States Code, of the final rule of the Department of the Interior relating to "Non-Subsistence Take of Wildlife, and Public Participation and Closure Procedures, on National Wildlife Refuges in Alaska".*
 
