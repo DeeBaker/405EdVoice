@@ -1,9 +1,7 @@
-#  EPA, National Parks, & Wildlife Legislation  
+#  EPA, National Parks, & Wildlife Legislation      
 
 
-
-
-## *1. Drilling in National Parks:* [House Joint Res 46 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)  
+## *1. Drilling in National Parks:* [House Joint Res 46 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-joint-resolution/46/text)     
 
 
 
