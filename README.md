@@ -46,7 +46,7 @@
 
 
 
-## HR861
+
 ## *3.Environmental deregulation:* [House Res 861 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/house-bill/861/text)  
   
   
@@ -72,6 +72,28 @@
    <br><br>
 
 ## House Joint Resolution 36 and Senate Joint Resolution 11
+## *3.Environmental deregulation:* [House Joint Res 36 Senate Joint Resolution 11 with the text of the bill, sponsors and all related information](https://www.congress.gov/bill/115th-congress/senate-joint-resolution/11/text)  
+  
+  
+
+### *Providing for congressional disapproval under chapter 8 of title 5, United States Code, of the final rule of the Bureau of Land Management relating to "Waste Prevention, Production Subject to Royalties, and Resource Conservation"*
+
+
+### ** This Bill would terminate the EPA.
+
+### **Removes the BLM rule relating to reduction of waste of natural gas from venting, flaring, and leaks during oil and natural gas production activities. https://www.federalregister.gov/documents/2016/11/18/2016-27637/waste-prevention-production-subject-to-royalties-and-resource-conservation **
+
+### [Online Transportation Committee Membership:](http://clerk.house.gov/committee_info/index.aspx?comcode=PW00)
+### [Science](http://clerk.house.gov/committee_info/index.aspx?comcode=SY00) 
+### [Energy and Commerce](http://clerk.house.gov/committee_info/index.aspx?comcode=IF00)
+### To contact by snail mail, phone, and fax contact your representative: 
+
+### [Click here to find your representative Congressional Contact](https://www.congress.gov/members)
+
+### *Not sure what to say or exactly how to say it? Here is a* [Call Script](https://docs.google.com/document/d/1JrnvwpjXCNQ6Isc6UWwkIqpUyscodeubJOlqSV34keI/edit)
+ 
+   <br><br>
+
 
 ## House Joint Res 69
 
